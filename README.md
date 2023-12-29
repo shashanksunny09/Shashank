@@ -16,3 +16,6 @@ https://drive.google.com/file/d/1TVu3XuBltsn1ZQmK4WjYsXQ1096qb2jB/view?usp=drive
 PDF LINK
 
 https://drive.google.com/file/d/1TX3jmcamKR4SoBlMUf1MwBWYv-OqU0RQ/view?usp=drivesdk
+
+PPT
+https://drive.google.com/file/d/1-0BMa-Pz3WRp-cszzHtyTEEvseeJCRzr/view?usp=drivesdk
